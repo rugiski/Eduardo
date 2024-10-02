@@ -5,5 +5,9 @@ Olá, meu nome é Eduardo.
 
 Tenho 15 anos e estudo no Colégio estadual Dom Pedro II
 
-Meu jogo favorito é God Of War III, e vou provar para todos os Enzos que o Cleitão ele amassa o Wukong
+Meu jogo favorito é God Of War III, e vou provar para todos os Enzos que o Cleitão amassa o Wukong
 ![mamaco sendo amassado pelo karatos](https://i.ytimg.com/vi/iqROUpvQkbc/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLB6cxmEtCa7FK9yTkVqvkpFyzSsdQ)
+
+Gosto muito de red dead redempition 2 também, com certeza um dos melhores jogos da história dos vídeo games, e sem dúvidas merecia o The game awards de 2018.
+
+![Arthur morgan lindao]()
