@@ -10,4 +10,4 @@ Meu jogo favorito é God Of War III, e vou provar para todos os Enzos que o Clei
 
 Gosto muito de red dead redempition 2 também, com certeza um dos melhores jogos da história dos vídeo games, e sem dúvidas merecia o The game awards de 2018.
 
-![Arthur morgan lindao]()
+![Arthur morgan lindao](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExZGUyNmd6Zjlza3Q1YnltaGpzN2d3MDRldHJlc3d0aXJjMms0bDhneiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/2l9yjNsfgxt3sVt6zk/giphy.webp)
